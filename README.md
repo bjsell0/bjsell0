@@ -9,11 +9,9 @@ be a much harder to reach goal than it originally was when I started. I am inter
 in cybersecurity analyst, cybersecurity researcher, and computer adminstration
 related roles in general. 
 
-If you would like to reach me you can use either of these emails,
+If you would like to reach me at my school email,
 
 bjsell0@frostburg.edu
-
-pokky0100@gmail.com
 
 or you can try my linkedin,
 
