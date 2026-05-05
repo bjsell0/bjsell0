@@ -10,9 +10,12 @@ in cybersecurity analyst, cybersecurity researcher, and computer adminstration
 related roles in general. 
 
 If you would like to reach me you can use either of these emails,
+
 bjsell0@frostburg.edu
 pokky0100@gmail.com
+
 or you can try my linkedin,
+
 https://www.linkedin.com/in/ben-sell-b883a53ab/
 
 Please feel free to look at my numerous repositories as well!
