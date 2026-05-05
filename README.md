@@ -12,6 +12,7 @@ related roles in general.
 If you would like to reach me you can use either of these emails,
 
 bjsell0@frostburg.edu
+
 pokky0100@gmail.com
 
 or you can try my linkedin,
